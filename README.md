@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @Casi7
 - 👀 I’m interested in being a savior 
-- 🌱 I’m currently learning bio
 - 💞️ I’m looking to collaborate with myself
 - 📫 How to reach me grab the mask and gloves dial 100
-- 😄 Pronouns: He/him
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: trust me & u gonna regret 
 
 <!---
